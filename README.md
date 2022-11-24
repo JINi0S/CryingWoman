@@ -1,2 +1,2 @@
 
-![스크린샷 2022-11-24 오후 8.38.24.png](image.png)
+![image](https://user-images.githubusercontent.com/100195563/203776001-b67b4468-3af2-4fd7-b8c6-f72554639883.png)
